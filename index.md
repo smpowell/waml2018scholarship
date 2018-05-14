@@ -1,4 +1,4 @@
-## 2017 WAML Scholarship Program file upload
+## 2018 WAML Scholarship Program file upload
 
 To complete your application to the <a href="http://www.waml.org/mbrinfo.html#Scholarships">2017 WAML scholarship program</a>, please upload your files using the boxes below. 
 
